@@ -23,8 +23,8 @@ Passionné par l'analyse de données et l'économie, je me spécialise dans la t
 
 ## Expériences Professionnelles
 
-* **Analyste Financier (Stage) - We!Fund By FONSIS :** Analyse et présentation de projets d'investissement.
-* **Gestionnaire de Patrimoine (CDD) - OVB :** Gestion et développement de la relation client.
+* **Analyste Financier (Stage) - We!Fund By FONSIS, Dakar, Sénégal :** Analyse et présentation de projets d'investissement.
+* **Gestionnaire de Patrimoine (CDD) - OVB, Entzheim, France :** Gestion et développement de la relation client.
 * **Expériences Opérationnelles :** Vendeur (JD Sport), Employé commercial (E. Leclerc), Chauffeur-livreur.
 
 ---
@@ -39,4 +39,3 @@ Passionné par l'analyse de données et l'économie, je me spécialise dans la t
 
 ## Me contacter
 * **LinkedIn :** [linkedin.com/in/joe-junior.bishinga](https://linkedin.com/in/joe-junior.bishinga)
-* **Email :** jjbishinga@gmail.com
