@@ -38,5 +38,5 @@ Passionné par l'analyse de données et l'économie, je me spécialise dans la t
 ---
 
 ## Me contacter
-* **LinkedIn :** [linkedin.com/in/joe-junior.bishinga](www.linkedin.com/in/joe-junior-bishinga-69a682230)
+* **LinkedIn :** [linkedin.com/in/joe-junior.bishinga](https://linkedin.com/in/joe-junior-bishinga-69a682230/)
 * **Email :** (jbishinga@yahoo.fr)
