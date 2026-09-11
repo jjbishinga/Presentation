@@ -25,8 +25,7 @@ Passionné par l'analyse de données et l'économie, je me spécialise dans la t
 
 * **Analyste Financier (Stage) - We!Fund By FONSIS, Dakar, Sénégal :** Analyse et présentation de projets d'investissement.
 * **Gestionnaire de Patrimoine (CDD) - OVB, Entzheim, France :** Gestion et développement de la relation client.
-* **Expériences Opérationnelles :** Vendeur (JD Sport), Employé commercial (E. Leclerc), Chauffeur-livreur.
-
+* **Expériences Opérationnelles :** Chauffeur-livreur (L'Alsacienne de Restauration), Vendeur (JD Sport), Employé commercial (E. Leclerc).
 ---
 
 ## Langues & Centres d'Intérêt
